@@ -1,52 +1,41 @@
 # Eyes-smiles-skies-lies-and-cries
 
+
 ```
 Up in skies there it lies
 Where Gods playing since eternal times
-Amidst pines peaks holding eternal skies
+Amidst Pines peaks holding eternal skies
 ```
 ```
 Where dawn's golden light still shines
-Birds melodies ragas wakes ones eyes
-Up there gods adorns walls tiles
+Birds melodies flutes wakes ones eyes
+Up there gods adorn walls tiles
 ```
 ```
 Wild souls like bees out of hives
-Seeking answers answered or unanswered which takes lives
-```
-```
+Seeking answers which takes lives
 East west without rest
-Science silence all one tries
+Science silence yoga all one tries
 ```
 ```
-Maha Maya plays it's dice
-Instance of ignorance tt trance of mind
-```
-
-```
-Towards smoke and fragrance one flies
+Maha Maya spells eternal deciever of eyes
+In a trance to smoke fragrance bee flies
 Puffs of smoke to skies comes and goes smiles
-```
-```
 Nectar of divine is mine mind cries
+```
+```
 Dark clouds now dawn on skies
-```
-```
 Clouded minds dulled eyes
 One more dip in drips of pleasures 
 Just another chain in web of lies
 ```
 ```
-Thunder shifts mind back to souls eyes
-Out of trance be still silence the mind
-Smoke settles incense reveals it's kind
+Thunder of skies takes mind back to soul's eyes
+Be still till smoke merges up in skies
+An mere incense enchanted my eyes
+Years of karma to ashes tears eyes
 ```
 ```
-Divine search gone upside
-Down to ashes is karma held inside
-```
-```
-Teared up are our eyes
 Hear the souls cries 
 Oh krishna signs among lies
 ```
@@ -56,39 +45,34 @@ Tears falls off from skies
 Clears smoke of peaks and souls eyes
 ```
 ```
-Clearer sight seeks new insight
-Golden peak afar lights the sight
+Eyes seek answers in eternal skies
+Golden peak afar lights my eyes
+Sign of eternity every soul desires
 ```
 ```
-Melodies stories memories of past times
+Melodies stories of gone by times
 Day flies lost in eyes and smiles
-```
-```
-Hard is way of still spine oh divine
-Oh Krishna oh nachiketa way to certainity
-Of eternity you saw is hard without signs
-```
 
+Hard is way of still spine oh divine
+```
 ```
 Time flying fear drawing
-Hold on keep trying
-```
-```
+Hold on keep trying 
 Endure the tides
 No tricks no slides
 ```
 ```
-Eyes closed way ahead is even hidden
-In shrooms n trips you say traumas will be ridden
+Hard even a step on way with closed eyes
+And you say In shrooms n trips traumas dies
 ```
 ```
-Words smiles cries thoughts all the lies
-Instance of ignorance trance of mind
+Words smiles cries all the lies
+Instance of ignorance bee stuck in web of lies
 ```
 ```
+Oh Krishna hard is way without signs
 See with divine eyes
-Anger lies deception in you now shines
+Reflect and see what eyes denies
 Only truth is way out of lies
 Krishna your mercy tears eyes
 ```
-
